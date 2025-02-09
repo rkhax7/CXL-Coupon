@@ -2,7 +2,7 @@
 
 Looking to save on CXL’s top marketing courses using the best coupon codes? You’re in the right place!
 
-We’ve gathered the latest [**CXL coupons**](https://bit.ly/4dZd1mw) and discounts for 2025, offering **up to 40% off**.
+We’ve gathered the latest [**CXL coupons**](https://yupbeat.com/blog/cxl-review/) and discounts for 2025, offering **up to 40% off**.
 
 [
 ![](https://media.licdn.com/dms/image/v2/D5612AQFiT4n2Gjhieg/article-inline_image-shrink_1500_2232/article-inline_image-shrink_1500_2232/0/1729359984565?e=1743033600&v=beta&t=XpWnyi6x3L17Dnc8ztp7g5bXZ1odBUgJWDV0T5fXT3w)
